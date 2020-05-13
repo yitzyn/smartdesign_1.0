@@ -1,0 +1,1 @@
+# smartdesign_1.0
